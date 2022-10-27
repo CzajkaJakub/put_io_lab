@@ -7,4 +7,10 @@ cos tam nowego na nowym branchu
 nowy afasfasdasdfad
 
 cos tam nowego na nowym branchusdsdfdf
+sdsdsddffg
+
+sdsdsddffgdssdfgasdfds
+
+
+cos tam nowego na nowym branchusdsdfdf
 sdsdsddffgfssdfdfsdfs
