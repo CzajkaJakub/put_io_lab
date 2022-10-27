@@ -1,4 +1,4 @@
 Jakub Czajka 147584
 edycja przez githuba
 
-cos tam nowego na nowym branchu
+cos tam nowego na nowym branchu FINALNA WERSJA MAINA
